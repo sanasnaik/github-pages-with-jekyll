@@ -1,3 +1,3 @@
 --
-hi guys this is a very pog day i asked a girl if she would go to the epic dance with me today which is at my school and she said that shes going with someone. thats ok though becos i know she meant to say that she would have gone with me if i asked her earlier. i know this because my mom told me i was her handsome little boy and all the girls lov me.
+description: hi guys this is a very pog day i asked a girl if she would go to the epic dance with me today which is at my school and she said that shes going with someone. thats ok though becos i know she meant to say that she would have gone with me if i asked her earlier. i know this because my mom told me i was her handsome little boy and all the girls lov me.
 -- 
